@@ -2,7 +2,6 @@
 - 👀 I’m interested in learning, loving, and growing
 - 🌱 I’m currently learning Cybersecurity skills
 - 💞️ I’m looking to collaborate on projects of any kind
-- 📫 How to reach me Ryan.j.feeny@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have a tattoo machine and im affraid to use it
 <!---
